@@ -31,7 +31,7 @@ _Sometimes I'm quiet and don't join in because I don't have a topic and don't fi
 
 ![Image](https://github.com/user-attachments/assets/404bd66e-d5b1-41bf-b682-bf9c81dc9fbd)
 
-**It's not wrong if there are similarities in form due to limitations, but it's impossible to be that similar, but is it really a coincidence?**‎ ·ࡇ·
+It's not wrong if there are similarities in form due to limitations, but it's impossible to be that similar, but is it really a coincidence?‎ ·ࡇ·
 
 ![Image](https://github.com/user-attachments/assets/41987b74-8b2a-477f-b1a9-181a57143ddb)
 
@@ -48,7 +48,7 @@ And one more thing, if you don't want to be friends with me anymore, just say it
 (՞っ ̫ _՞)𓈒 𓂂𓏸
 ![Image](https://github.com/user-attachments/assets/becd4e69-1484-4bc5-990d-5de29bddce75)
 
-Thank you for being my friend with all your heart ♡♡♡ I really appreciate it ♥︎(˶˃ ᵕ ˂ )✧
+тнαηк уσυ ƒσя вєιηg му ƒяιєη∂ ωιтн αℓℓ уσυя нєαят ♡♡♡ ι яєαℓℓу αρρяє¢ιαтє  ιт  ♥︎(˶˃ ᵕ ˂ )✧
 
 anyway babai :b 
 ![Image](https://github.com/user-attachments/assets/11437201-eeb2-4445-8d7f-caf45928e999)
